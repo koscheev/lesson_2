@@ -1,1 +1,1 @@
-# lesson_2
+https://koscheev.github.io/lesson_2/
